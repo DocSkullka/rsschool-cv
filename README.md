@@ -1,1 +1,1 @@
-# rsschool-cv
+https://Docskullka.github.io/rsschool-cv/cv
