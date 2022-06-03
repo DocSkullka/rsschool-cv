@@ -1,1 +1,1 @@
-ttps://Docskullka.github.io/rsschool-cv/cv
+https://Docskullka.github.io/rsschool-cv/cv
